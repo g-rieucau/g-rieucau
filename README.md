@@ -27,9 +27,9 @@ Depuis 2019, elle consacre ses travaux de recherches aux problématiques de l'em
 
 - Rieucau G., Laussu J., Jolivet A., Brunet C., Lege Ph., Celle S., Guyon T., Longuet S., Tran VH., Larquier de G. (2024), _Construire les métiers et les emplois de la transition écologique et sociale, rapport final pour l’ADEME_ (mai 2024)
 
-- Laussu, J., Rieucau, G. (2023) « Les métiers du réemploi dans les recycleries et les ateliers vélos : quels défis et quels soutiens » ? _Connaissance de l’emploi_ n° 190 Les métiers du réemploi dans les recycleries et ateliers vélos : quels défis et quels soutiens ? | CEET | Cnam 
+- Laussu, J., Rieucau, G. (2023) « Les métiers du réemploi dans les recycleries et les ateliers vélos : quels défis et quels soutiens » ? _Connaissance de l’emploi_ n° 190 Les métiers du réemploi dans les recycleries et ateliers vélos : quels défis et quels soutiens ?  CEET  Cnam 
 
-- Peugny, C. et Rieucau, G. (2021), "Emploi, travail et environnement : l'heure des transitions ? Introduction, coordination du dossier spécial Travail et Emploi, n° 166-167:5-18 Introduction. Emploi, travail et environnement : l’heure des transitions ? | Cairn.info
+- Peugny, C. et Rieucau, G. (2021), "Emploi, travail et environnement : l'heure des transitions ? Introduction, coordination du dossier spécial Travail et Emploi, n° 166-167:5-18 Introduction. Emploi, travail et environnement : l’heure des transitions ?  Cairn.info
 
 - Larquier, G. (de) et Rieucau, G. (2020) "Les pratiques de recrutement des entreprises : un pouvoir de segmentation et de valorisation"? Document de travail du CEET , n°201, http://www.ceet.cnam.fr/publications/documents-de-travail/les-pratiques-de-recrutement-des-entreprises-un-pouvoir-de-segmentation-et-de-valorisation-1141397.kjsp?RH=1507626749912
 
