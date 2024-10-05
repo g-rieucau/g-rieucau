@@ -4,9 +4,9 @@ Professeure des universités en Économie depuis 2020 à l'université de Picard
 
 Directrice des études du département Techniques de Commercialisation, IUT de l'Oise, site de Creil.
 
-Membre du (Centre de recherche sur l'industrie, les institutions et les systèmes économiques d'Amiens](https://www.google.com/url?q=https%3A%2F%2Fcriisea.u-picardie.fr%2F&sa=D) (CRIISEA)
+Membre du (Centre de recherche sur l'industrie, les institutions et les systèmes économiques d'Amiens](https://criisea.u-picardie.fr) (CRIISEA)
 
-Chercheuse affiliée au [Centre d'études de l'emploi et du travail](https://www.google.com/url?q=https%3A%2F%2Fceet.cnam.fr%2Fceet%2Fcentre-d-etudes-de-l-emploi-et-du-travail-accueil-947519.kjsp&sa=D)
+Chercheuse affiliée au [Centre d'études de l'emploi et du travail](https://ceet.cnam.fr)
 
 Co-rédactrice en cheffe de la revue [Travail et Emploi](https://shs.cairn.info/revue-travail-et-emploi?lang=fr)
 
