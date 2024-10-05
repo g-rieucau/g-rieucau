@@ -10,8 +10,7 @@ Chercheuse affiliée au [Centre d'études de l'emploi et du travail](https://cee
 
 Co-rédactrice en cheffe de la revue [Travail et Emploi](https://shs.cairn.info/revue-travail-et-emploi?lang=fr)
 
-Email: [geraldine.rieucau@u-picardie.fr](mailto:geraldine.rieucau@u-picardie.fr)
-
+Email: [geraldine.rieucau@u-picardie.fr](mailto:geraldine.rieucau@u-picardie.fr) et [g.rieucau@gmail.com](mailto:g.rieucau@gmail.com)
 ## Parcours
 
 Géraldine Rieucau est Professeure des Universités en Economie depuis 2020 à l'Université de Picardie Jules Verne (UPVJ), membre du CRIISEA (Centre de recherches sur l'industrie, les institutions et les systèmes économiques d'Amiens), elle est enseignante au département Techniques de Commercialisation de l'IUT de l'Oise (Creil). Elle est affiliée au Cnam-CEET et co-rédactrice en chef de la revue Travail et Emploi (depuis février 2018). Géraldine Rieucau était auparavant Maîtresse de conférences à l’université Paris 8 (2001-2020) ; elle a été en détachement au Centre d’études de l’emploi (2012-2015), en CRCT à Brighton University (2012) et en délégation à l'université Pompeu Fabra de Barcelone (2006-2007).
