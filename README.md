@@ -31,7 +31,7 @@ Depuis 2019, elle consacre ses travaux de recherches aux problématiques de l'em
 
 - Peugny, C. et Rieucau, G. (2021), "Emploi, travail et environnement : l'heure des transitions ? Introduction, coordination du dossier spécial Travail et Emploi, n° 166-167:5-18 Introduction. Emploi, travail et environnement : l’heure des transitions ? | Cairn.info
 
-- Larquier, G. (de) et Rieucau, G. (2020) "Les pratiques de recrutement des entreprises : un pouvoir de segmentation et de valorisation"? Document de travail du CEET , n°201, hhtp://www.ceet.cnam.fr/publications/documents-de-travail/les-pratiques-de-recrutement-des-entreprises-un-pouvoir-de-segmentation-et-de-valorisation-1141397.kjsp?RH=1507626749912
+- Larquier, G. (de) et Rieucau, G. (2020) "Les pratiques de recrutement des entreprises : un pouvoir de segmentation et de valorisation"? Document de travail du CEET , n°201, http://www.ceet.cnam.fr/publications/documents-de-travail/les-pratiques-de-recrutement-des-entreprises-un-pouvoir-de-segmentation-et-de-valorisation-1141397.kjsp?RH=1507626749912
 
 - Brunet, C. et Rieucau, G. (2019) " Le rôle de l'information sur la demande et la participation des salariés à une formation. Les enseignements de l'enquête Defis", Revue économique, vol.70 (5), p. 789-823
 
@@ -41,7 +41,7 @@ Depuis 2019, elle consacre ses travaux de recherches aux problématiques de l'em
 
 - Brunet, C. et Rieucau, G. (2019), " Tous informés... tous formés ?", Bref du Céreq, n° 378, http://www.cereq.fr/publications/Cereq-Bref/Tous-informes-tous-formes
 
-- Lizé, L. et Rieucau G. (2018) " S'insérer dans une entreprise où l'on travaillait pendant les études", Formation emploi, n° 141, p. 153-173‪. S’insérer dans une entreprise où l’on travaillait pendant les études‪ | Cairn.info 
+- Lizé, L. et Rieucau G. (2018) " S'insérer dans une entreprise où l'on travaillait pendant les études", Formation emploi, n° 141, p. 153-173‪. S’insérer dans une entreprise où l’on travaillait pendant les études‪, Cairn.info 
 
 - Larquier G. de et Rieucau, G. (2017) "Les annonces d’offre d’emploi : une information publique mais ciblée. Exploitation de l’enquête Emploi (2003-2012)" Revue économique, vol. 68(2), p. 199-217
 
