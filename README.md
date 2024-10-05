@@ -1,5 +1,7 @@
 # Géraldine Rieucau
 
+![](OIP.jpg)
+
 Professeure des universités en Économie à l'université de Picardie Jules Verne.
 
 Directrice des études du département Techniques de Commercialisation, IUT de l'Oise, site de Creil.
