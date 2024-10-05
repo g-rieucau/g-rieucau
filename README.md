@@ -21,41 +21,41 @@ Depuis 2019, elle consacre ses travaux de recherches aux problématiques de l'em
 
 # Publications
 
-    Larquier (de), G. and Rieucau, G. (à paraître). Firm’s Recruitment Practices: The Powers of Segmentation and of Valuation. _Cambridge Journal of Economics_. 
+- Larquier (de), G. and Rieucau, G. (à paraître). Firm’s Recruitment Practices: The Powers of Segmentation and of Valuation. _Cambridge Journal of Economics_. 
 
-    Rieucau G., Laussu J., Jolivet A., Brunet C., Lege Ph., Celle S., Guyon T., Longuet S., Tran VH., Larquier de G. (2024), _Construire les métiers et les emplois de la transition écologique et sociale, rapport final pour l’ADEME_ (mai 2024)
+- Rieucau G., Laussu J., Jolivet A., Brunet C., Lege Ph., Celle S., Guyon T., Longuet S., Tran VH., Larquier de G. (2024), _Construire les métiers et les emplois de la transition écologique et sociale, rapport final pour l’ADEME_ (mai 2024)
 
-    Laussu, J., Rieucau, G. (2023) « Les métiers du réemploi dans les recycleries et les ateliers vélos : quels défis et quels soutiens » ? _Connaissance de l’emploi_ n° 190 Les métiers du réemploi dans les recycleries et ateliers vélos : quels défis et quels soutiens ? | CEET | Cnam 
+- Laussu, J., Rieucau, G. (2023) « Les métiers du réemploi dans les recycleries et les ateliers vélos : quels défis et quels soutiens » ? _Connaissance de l’emploi_ n° 190 Les métiers du réemploi dans les recycleries et ateliers vélos : quels défis et quels soutiens ? | CEET | Cnam 
 
-    Peugny, C. et Rieucau, G. (2021), "Emploi, travail et environnement : l'heure des transitions ? Introduction, coordination du dossier spécial Travail et Emploi, n° 166-167:5-18 Introduction. Emploi, travail et environnement : l’heure des transitions ? | Cairn.info
+- Peugny, C. et Rieucau, G. (2021), "Emploi, travail et environnement : l'heure des transitions ? Introduction, coordination du dossier spécial Travail et Emploi, n° 166-167:5-18 Introduction. Emploi, travail et environnement : l’heure des transitions ? | Cairn.info
 
-    Larquier, G. (de) et Rieucau, G. (2020) "Les pratiques de recrutement des entreprises : un pouvoir de segmentation et de valorisation"? Document de travail du CEET , n°201, hhtp://www.ceet.cnam.fr/publications/documents-de-travail/les-pratiques-de-recrutement-des-entreprises-un-pouvoir-de-segmentation-et-de-valorisation-1141397.kjsp?RH=1507626749912
+- Larquier, G. (de) et Rieucau, G. (2020) "Les pratiques de recrutement des entreprises : un pouvoir de segmentation et de valorisation"? Document de travail du CEET , n°201, hhtp://www.ceet.cnam.fr/publications/documents-de-travail/les-pratiques-de-recrutement-des-entreprises-un-pouvoir-de-segmentation-et-de-valorisation-1141397.kjsp?RH=1507626749912
 
-    Brunet, C. et Rieucau, G. (2019) " Le rôle de l'information sur la demande et la participation des salariés à une formation. Les enseignements de l'enquête Defis", Revue économique, vol.70 (5), p. 789-823
+- Brunet, C. et Rieucau, G. (2019) " Le rôle de l'information sur la demande et la participation des salariés à une formation. Les enseignements de l'enquête Defis", Revue économique, vol.70 (5), p. 789-823
 
-    Brunet, C. et Rieucau, G. (2019), "Mobilités géographiques, emplois et inégalités ; Introduction, coordination du dossier spécial Travail et Emploi, n° 160 : 5-22 .
+- Brunet, C. et Rieucau, G. (2019), "Mobilités géographiques, emplois et inégalités ; Introduction, coordination du dossier spécial Travail et Emploi, n° 160 : 5-22 .
 
-    Larquier G. de et Rieucau, G. (2019) " Valuation and Matching: A Conventionalist Explanation of Labor Markets by Firm's Recruitment Channels", Historical Social Research, vol. 44 (1), p. 52-72
+- Larquier G. de et Rieucau, G. (2019) " Valuation and Matching: A Conventionalist Explanation of Labor Markets by Firm's Recruitment Channels", Historical Social Research, vol. 44 (1), p. 52-72
 
-    Brunet, C. et Rieucau, G. (2019), " Tous informés... tous formés ?", Bref du Céreq, n° 378, http://www.cereq.fr/publications/Cereq-Bref/Tous-informes-tous-formes
+- Brunet, C. et Rieucau, G. (2019), " Tous informés... tous formés ?", Bref du Céreq, n° 378, http://www.cereq.fr/publications/Cereq-Bref/Tous-informes-tous-formes
 
-    Lizé, L. et Rieucau G. (2018) " S'insérer dans une entreprise où l'on travaillait pendant les études", Formation emploi, n° 141, p. 153-173‪. S’insérer dans une entreprise où l’on travaillait pendant les études‪ | Cairn.info 
+- Lizé, L. et Rieucau G. (2018) " S'insérer dans une entreprise où l'on travaillait pendant les études", Formation emploi, n° 141, p. 153-173‪. S’insérer dans une entreprise où l’on travaillait pendant les études‪ | Cairn.info 
 
-    Larquier G. de et Rieucau, G. (2017) "Les annonces d’offre d’emploi : une information publique mais ciblée. Exploitation de l’enquête Emploi (2003-2012)" Revue économique, vol. 68(2), p. 199-217
+- Larquier G. de et Rieucau, G. (2017) "Les annonces d’offre d’emploi : une information publique mais ciblée. Exploitation de l’enquête Emploi (2003-2012)" Revue économique, vol. 68(2), p. 199-217
 
-    Marchal, E., Remillon, D. et Rieucau, G. (2017), "Eprouver le marché du travail à l'occasion des salons pour l'emploi", Socio-économie du Travail (Economies et sociétes), n°2, p. 101-129
+- Marchal, E., Remillon, D. et Rieucau, G. (2017), "Eprouver le marché du travail à l'occasion des salons pour l'emploi", Socio-économie du Travail (Economies et sociétes), n°2, p. 101-129
 
-    Larquier, de, G., Rieucau, G. et Tuchszirer, C. (2016) « Recruter et former : un enjeu pour adapter et stabiliser les salariées dans l’entreprise ? » Bref du Céreq n°351
+- Larquier, de, G., Rieucau, G. et Tuchszirer, C. (2016) « Recruter et former : un enjeu pour adapter et stabiliser les salariées dans l’entreprise ? » Bref du Céreq n°351
 
-    Larquier G. de et Rieucau, G. (2015) "Candidatures spontanées, réseaux et intermédiaires publics : quelle information et quels appariements sur le marché du travail français?" Relations Industrielles/Industrial Relations (RI/IR), Vol 70 (3) p. 486-509.
+- Larquier G. de et Rieucau, G. (2015) "Candidatures spontanées, réseaux et intermédiaires publics : quelle information et quels appariements sur le marché du travail français?" Relations Industrielles/Industrial Relations (RI/IR), Vol 70 (3) p. 486-509.
 
-    Rieucau, G. (2017) « Recherche d’emploi : les candidatures spontanées, du job search aux conventions du marché du travail" in Batifoulier Ph et al. (Eds), Dictionnaire des conventions. Autour des travaux d’Olivier Favereau, PU du Septentrion, p. 341-345.
+- Rieucau, G. (2017) « Recherche d’emploi : les candidatures spontanées, du job search aux conventions du marché du travail" in Batifoulier Ph et al. (Eds), Dictionnaire des conventions. Autour des travaux d’Olivier Favereau, PU du Septentrion, p. 341-345.
 
-    Rieucau, G. (2015) " Getting a low-paid job in French and UK supermarkets: from walk-in to online application ?" Employee Relations, Vol. 37 (1), pp. 141-156
+- Rieucau, G. (2015) " Getting a low-paid job in French and UK supermarkets: from walk-in to online application ?" Employee Relations, Vol. 37 (1), pp. 141-156
 
-    Rieucau, G. et Salognon, M. (2014) "Employing the long-term unemployed: A demand-side oriented policy in retail in Greater Paris", Local Economy, Vol 29 (8), pp. 841-853
+- Rieucau, G. et Salognon, M. (2014) "Employing the long-term unemployed: A demand-side oriented policy in retail in Greater Paris", Local Economy, Vol 29 (8), pp. 841-853
 
-    Larquier G. de et Rieucau, G. (2014) "Quand les entreprises font leur marché : canaux et sélection sur les marchés du travail ", Revue Française de Socio-économie n°14, pp. 93-114 https://www.cairn.info/revue-francaise-de-socio-economie-2014-2-page-93.htm
+- Larquier G. de et Rieucau, G. (2014) "Quand les entreprises font leur marché : canaux et sélection sur les marchés du travail ", Revue Française de Socio-économie n°14, pp. 93-114 https://www.cairn.info/revue-francaise-de-socio-economie-2014-2-page-93.htm
 
 
 
