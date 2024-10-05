@@ -41,15 +41,15 @@ Depuis 2019, elle consacre ses travaux de recherches aux problématiques de l'em
 
 - Lizé, L. et Rieucau G. (2018) «  [S'insérer dans une entreprise où l'on travaillait pendant les études](https://shs.cairn.info/revue-formation-emploi-2018-1-page-153?lang=fr)  », _Formation emploi_, n° 141, p. 153-173‪. 
 
-- Larquier G. de et Rieucau, G. (2017) «  Les annonces d’offre d’emploi : une information publique mais ciblée. Exploitation de l’enquête Emploi (2003-2012)  » _Revue économique_, vol. 68(2), p. 199-217
+- Larquier G. de et Rieucau, G. (2017) «  [Les annonces d’offre d’emploi : une information publique mais ciblée. Exploitation de l’enquête Emploi (2003-2012)](https://shs.cairn.info/revue-economique-2017-2-page-199?lang=fr)  » _Revue économique_, vol. 68(2), p. 199-217
 
-- Marchal, E., Remillon, D. et Rieucau, G. (2017), «  Eprouver le marché du travail à l'occasion des salons pour l'emploi  », _Socio-économie du Travail (Economies et sociétes)_, n°2, p. 101-129
+- Marchal, E., Remillon, D. et Rieucau, G. (2017), «  [Eprouver le marché du travail à l'occasion des salons pour l'emploi](https://classiques-garnier.com/socio-economie-du-travail-2017-n-2-le-marche-du-travail-comme-objet-de-croyances-et-de-representations-eprouver-le-marche-du-travail-dans-les-salons-de-l-emploi.html)  », _Socio-économie du Travail (Economies et sociétes)_, n°2, p. 101-129
 
-- Larquier, de, G., Rieucau, G. et Tuchszirer, C. (2016) « Recruter et former : un enjeu pour adapter et stabiliser les salariées dans l’entreprise ? » _Bref du Céreq_ n°351
+- Larquier, de, G., Rieucau, G. et Tuchszirer, C. (2016) « [Recruter et former : un enjeu pour adapter et stabiliser les salariées dans l’entreprise ?](https://www.cereq.fr/en/node/8965) » _Bref du Céreq_ n°351
 
-- Larquier G. de et Rieucau, G. (2015) « Candidatures spontanées, réseaux et intermédiaires publics : quelle information et quels appariements sur le marché du travail français? » Relations Industrielles/Industrial Relations (RI/IR), Vol 70 (3) p. 486-509.
+- Larquier G. de et Rieucau, G. (2015) « [Candidatures spontanées, réseaux et intermédiaires publics : quelle information et quels appariements sur le marché du travail français ?](https://hal.science/hal-04141286/document) » _Relations Industrielles/Industrial Relations_ (RI/IR), Vol 70 (3) p. 486-509.
 
-- Rieucau, G. (2017) « Recherche d’emploi : les candidatures spontanées, du job search aux conventions du marché du travail » in Batifoulier Ph et al. (Eds), _Dictionnaire des conventions. Autour des travaux d’Olivier Favereau_, PU du Septentrion, p. 341-345.
+- Rieucau, G. (2017) « [Recherche d’emploi : les candidatures spontanées, du job search aux conventions du marché du travail](https://www.erudit.org/fr/revues/ri/2015-v70-n3-ri02101/1033407ar.pdf) » in Batifoulier Ph et al. (Eds), _Dictionnaire des conventions. Autour des travaux d’Olivier Favereau_, PU du Septentrion, p. 341-345.
 
 - Rieucau, G. (2015) «  Getting a low-paid job in French and UK supermarkets: from walk-in to online application ?  » _Employee Relations_, Vol. 37 (1), pp. 141-156
 
