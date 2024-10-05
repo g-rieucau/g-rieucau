@@ -49,7 +49,7 @@ Depuis 2019, elle consacre ses travaux de recherches aux problématiques de l'em
 
 - Larquier G. de et Rieucau, G. (2015) « [Candidatures spontanées, réseaux et intermédiaires publics : quelle information et quels appariements sur le marché du travail français ?](https://www.erudit.org/fr/revues/ri/2015-v70-n3-ri02101/1033407ar.pdf) » _Relations Industrielles/Industrial Relations_ (RI/IR), Vol 70 (3) p. 486-509.
 
-- Rieucau, G. (2017) « [Recherche d’emploi : les candidatures spontanées, du job search aux conventions du marché du travail](https://www.erudit.org/fr/revues/ri/2015-v70-n3-ri02101/1033407ar.pdf) » in Batifoulier Ph et al. (Eds), _Dictionnaire des conventions. Autour des travaux d’Olivier Favereau_, PU du Septentrion, p. 341-345.
+- Rieucau, G. (2017) « Recherche d’emploi : les candidatures spontanées, du job search aux conventions du marché du travail » in Batifoulier Ph et al. (Eds), _Dictionnaire des conventions. Autour des travaux d’Olivier Favereau_, PU du Septentrion, p. 341-345.
 
 - Rieucau, G. (2015) «  Getting a low-paid job in French and UK supermarkets: from walk-in to online application ?  » _Employee Relations_, Vol. 37 (1), pp. 141-156
 
