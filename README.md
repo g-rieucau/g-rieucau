@@ -1,6 +1,6 @@
 # Géraldine Rieucau
 
-![](OIP.jpg)
+![](OIP.jpeg)
 
 Professeure des universités en Économie à l'université de Picardie Jules Verne.
 
