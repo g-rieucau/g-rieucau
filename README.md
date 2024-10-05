@@ -21,7 +21,7 @@ Depuis 2019, elle consacre ses travaux de recherches aux problématiques de l'em
 
 # Publications
 
-- Larquier (de), G. and Rieucau, G. (à paraître). «  [Firm’s Recruitment Practices: The Powers of Segmentation and of Valuation](https://conventions.hypotheses.org/22398)  ». _Cambridge Journal of Economics_. 
+- Larquier (de), G. and Rieucau, G. (2024). «  [Firm’s Recruitment Practices: The Powers of Segmentation and of Valuation](https://conventions.hypotheses.org/22398)  ». _Cambridge Journal of Economics_. 
 
 - Rieucau G., Laussu J., Jolivet A., Brunet C., Lege Ph., Celle S., Guyon T., Longuet S., Tran VH., Larquier de G. (2024), _Construire les métiers et les emplois de la transition écologique et sociale, rapport final pour l’ADEME_ (mai 2024)
 
