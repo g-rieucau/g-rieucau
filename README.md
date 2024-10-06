@@ -2,7 +2,7 @@
 
 ![](OIP.jpeg)
 
-Professeure des universités en Économie à l'université de Picardie Jules Verne.
+Professeure des universités en Économie à l'université de Picardie Jules Verne. Enseignante à l'IUT de l'Oise (Creil)
 
 Membre du [Centre de recherche sur l'industrie, les institutions et les systèmes économiques d'Amiens](https://criisea.u-picardie.fr) (CRIISEA)
 
