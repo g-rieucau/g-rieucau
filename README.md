@@ -1,6 +1,4 @@
-<div style="text-align: right">
-     [![](flag.png)](README_en.md)
-</div>
+[English version ![](flag.png) ](README_en.md)
 
 # Géraldine Rieucau
 
