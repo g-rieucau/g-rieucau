@@ -5,7 +5,7 @@
 ![](OIP.jpeg)
 
 
-Professor of Economics at the University of Picardie Jules Verne. Teacher at theIUT de l'Oise (Creil).
+Professor of Economics at the University of Picardie Jules Verne. Teacher at the IUT de l'Oise (Creil).
 
 Member of the Centre de recherche sur l'industrie, les institutions et les systèmes économiques d'Amiens (CRIISEA).
 
