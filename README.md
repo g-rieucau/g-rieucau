@@ -1,4 +1,4 @@
-[![](flag.png)](README_en.md)
+<div style="text-align: right">[![](flag.png)](README_en.md)</div>
 
 # Géraldine Rieucau
 
