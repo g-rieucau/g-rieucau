@@ -1,4 +1,4 @@
-[English version ![](flag.png) ](README_en.md)
+(Version: [French](README.md) | [English](README_en.md))
 
 # Géraldine Rieucau
 
