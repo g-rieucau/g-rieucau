@@ -7,7 +7,7 @@
 
 Professor of Economics at the University of Picardie Jules Verne. Teacher at the IUT de l'Oise (Creil).(https://iut-oise.u-picardie.fr/)
 
-Member of the Centre de recherche sur l'industrie, les institutions et les systèmes économiques d'Amiens (CRIISEA).
+Member of the Centre de recherche sur l'industrie, les institutions et les systèmes économiques d'Amiens (CRIISEA).(https://criisea.u-picardie.fr)
 
 Researcher affiliated with the Centre d'études de l'emploi et du travail (Center for employment and labor studies)
 
