@@ -5,13 +5,13 @@
 ![](OIP.jpeg)
 
 
-Professor of Economics at the University of Picardie Jules Verne. Teacher at the IUT de l'Oise (Creil).(https://iut-oise.u-picardie.fr/)
+Professor of Economics at the University of Picardie Jules Verne. Teacher at the [IUT de l'Oise (Creil)].(https://iut-oise.u-picardie.fr/)
 
-Member of the Centre de recherche sur l'industrie, les institutions et les systèmes économiques d'Amiens (CRIISEA).(https://criisea.u-picardie.fr)
+Member of the Centre de recherche sur l'industrie, les institutions et les systèmes économiques d'Amiens [(CRIISEA)].(https://criisea.u-picardie.fr)
 
-Researcher affiliated with the Centre d'études de l'emploi et du travail (Center for employment and labor studies)
+Researcher affiliated with the Centre d'études de l'emploi et du travail [(Center for employment and labor studies)](https://ceet.cnam.fr)
 
-Co-editor of the journal Travail et Emploi
+Co-editor of the journal [Travail et Emploi]
 
 Email: geraldine.rieucau@u-picardie.fr and g.rieucau@gmail.com
 
