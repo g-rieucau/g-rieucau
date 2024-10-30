@@ -36,8 +36,6 @@ Since 2019, she has been devoting her research to issues of employment, work and
 
 - Peugny, C. et Rieucau, G. (2021), « [Emploi, travail et environnement : l'heure des transitions ? Introduction, coordination du dossier spécial Travail et Emploi](https://shs.cairn.info/revue-travail-et-emploi-2021-3-page-5?lang=fr)  », n° 166-167:5-18 Introduction. Emploi, travail et environnement : l’heure des transitions ?  
 
-- Larquier, G. (de) et Rieucau, G. (2020) «  [Les pratiques de recrutement des entreprises : un pouvoir de segmentation et de valorisation](https://shs.hal.science/halshs-02470474/file/Doc201_pratiques-de-recrutement-des-entreprises.pdf)"  » _Document de travail du CEET_ , n°201
-
 - Brunet, C. et Rieucau, G. (2019) «  [Le rôle de l'information sur la demande et la participation des salariés à une formation. Les enseignements de l'enquête Defis](https://shs.cairn.info/revue-economique-2019-5-page-751?lang=fr&ref=doi)  », _Revue économique_, vol.70 (5), p. 789-823
 
 - Brunet, C. et Rieucau, G. (2019) «  [Mobilités géographiques, emplois et inégalités ; Introduction, coordination du dossier spécial Travail et Emploi](https://shs.cairn.info/revue-travail-et-emploi-2019-4-page-5?lang=fr) », _Travail et Emploi_, n° 160 : 5-22 .
