@@ -31,7 +31,7 @@ Depuis 2019, elle consacre ses travaux de recherches aux problématiques de l'em
 
 - Peugny, C. et Rieucau, G. (2021), « [Emploi, travail et environnement : l'heure des transitions ? Introduction, coordination du dossier spécial Travail et Emploi](https://shs.cairn.info/revue-travail-et-emploi-2021-3-page-5?lang=fr)  », n° 166-167:5-18 Introduction. Emploi, travail et environnement : l’heure des transitions ?  
 
-- Brunet, C. et Rieucau, G. (2019) «  [Le rôle de l'information sur la demande et la participation des salariés à une formation. Les enseignements de l'enquête Defis](https://shs.cairn.info/revue-economique-2019-5-page-751?lang=fr&ref=doi)  », _Revue économique_, vol.70 (5), p. 789-823
+- Brunet, C. et Rieucau, G. (2019) «  [Le rôle de l'information sur la demande et la participation des salariés à une formation. Les enseignements de l'enquête Defis](https://shs.cairn.info/revue-economique-2019-5-page-751?lang=fr&ref=doi)  », _Revue économique_, vol.70 (5), p. 789-823.
 
 - Brunet, C. et Rieucau, G. (2019) «  [Mobilités géographiques, emplois et inégalités ; Introduction, coordination du dossier spécial Travail et Emploi](https://shs.cairn.info/revue-travail-et-emploi-2019-4-page-5?lang=fr) », _Travail et Emploi_, n° 160 : 5-22 .
 
