@@ -33,7 +33,7 @@ Depuis 2019, elle consacre ses travaux de recherches aux problématiques de l'em
 
 - Brunet, C. et Rieucau, G. (2019) «  [Le rôle de l'information sur la demande et la participation des salariés à une formation. Les enseignements de l'enquête Defis](https://shs.cairn.info/revue-economique-2019-5-page-751?lang=fr&ref=doi)  », _Revue économique_, vol.70 (5), p. 789-823.
 
-- Brunet, C. et Rieucau, G. (2019) «  [Mobilités géographiques, emplois et inégalités ; Introduction, coordination du dossier spécial Travail et Emploi](https://shs.cairn.info/revue-travail-et-emploi-2019-4-page-5?lang=fr) », _Travail et Emploi_, n° 160 : 5-22 .
+- Brunet, C. et Rieucau, G. (2019) «  [Mobilités géographiques, emplois et inégalités ; Introduction, coordination du dossier spécial Travail et Emploi](https://shs.cairn.info/revue-travail-et-emploi-2019-4-page-5?lang=fr) », _Travail et Emploi_, n° 160 : 5-22.
 
 - Larquier G. de et Rieucau, G. (2019) «  [Valuation and Matching: A Conventionalist Explanation of Labor Markets by Firm's Recruitment Channels](https://www.ssoar.info/ssoar/bitstream/handle/document/61234/ssoar-hsr-2019-1-larquier_et_al-Valuation_and_Matching_A_Conventionalist.pdf;jsessionid=AC044C16F1DD1F2CD7B737E0D6FFBE87?sequence=1)  », _Historical Social Research_, vol. 44 (1), p. 52-72
 
