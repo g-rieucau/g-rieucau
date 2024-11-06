@@ -30,7 +30,7 @@ Since 2019, she has been devoting her research to issues of employment, work and
 
 - Larquier (de), G. and Rieucau, G. (2024). «  [Firm’s Recruitment Practices: The Powers of Segmentation and of Valuation](https://conventions.hypotheses.org/22398)  ». _Cambridge Journal of Economics_. 
 
-- Rieucau G., Laussu J., Jolivet A., Brunet C., Lege Ph., Celle S., Guyon T., Longuet S., Tran VH., Larquier de G. (2024), «  [Construire les métiers et les emplois de la transition écologique et sociale] (https://ceet.cnam.fr/publications/rapports-de-recherche/construire-les-metiers-et-les-emplois-de-la-transition-ecologique-et-sociale-1506074.kjsp?RH=1507626803290)», rapport final pour l’ADEME, rapport de Recherches du CEET n°113 
+- Rieucau G., Laussu J., Jolivet A., Brunet C., Lege Ph., Celle S., Guyon T., Longuet S., Tran VH., Larquier de G. (2024), «  [Construire les métiers et les emplois de la transition écologique et sociale](https://ceet.cnam.fr/publications/rapports-de-recherche/construire-les-metiers-et-les-emplois-de-la-transition-ecologique-et-sociale-1506074.kjsp?RH=1507626803290)] », rapport final pour l’ADEME, rapport de Recherches du CEET n°113 
 
 - Laussu, J., Rieucau, G. (2023) « [Les métiers du réemploi dans les recycleries et les ateliers vélos : quels défis et quels soutiens ?](https://shs.hal.science/halshs-04152442/document) »  _Connaissance de l’emploi_ n° 190.  
 
