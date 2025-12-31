@@ -3,7 +3,7 @@
 # Géraldine Rieucau
 
 
-![](OIP3.jpeg)
+![](GR-decembre25-bis.jpg)
 
 Professeure des universités en Économie à l'université de Picardie Jules Verne. Enseignante à l'[IUT de l'Oise (Creil)](https://iut-oise.u-picardie.fr/)
 
