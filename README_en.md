@@ -23,12 +23,12 @@ She is affiliated with Cnam-CEET and co-editor-in-chief of the journal Travail e
 
 Géraldine Rieucau was previously Maîtresse de conférences at Paris 8 University (2001-2020); she worked at the Centre d'études de l'emploi (2012-2015), and was a visiting researcher at Brighton University (2012) and at Pompeu Fabra University, Barcelona (2006-2007).
 
-Since 2019, she has been devoting her research to issues of employment, work and training in relation to the ecological, economic and social transition. She coordinated the Comètes research project (Construire les métiers et les emplois de la transition écologique et sociale) supported by ADEME (APR TEES-2022-2024) and exploratory research on Territoires, emplois publics et transition, supported by UPJV. She is currently in charge of the research project "Towards green social work? Practices, perceptions and perspectives of social workers and the public in solidarity-based associations", in coordination with Maÿlis Dupont (FAS). The research is funded by the Directorate for Research, Studies, Evaluation and Statistics (DREES), the National Institute for Social Work – Directorate-General for Social Cohesion (INTS – DGCS) and the National Family Allowances Fund (CNAF), 
+Since 2019, she has been devoting her research to issues of employment, work and training in relation to the ecological, economic and social transition. She coordinated the Comètes research project (Construire les métiers et les emplois de la transition écologique et sociale) supported by ADEME (APR TEES-2022-2024) and exploratory research on Territoires, emplois publics et transition, supported by UPJV. She is currently in charge, with Maÿlis Dupont (FAS), of the research project "Towards green social work? Practices, perceptions and perspectives of social workers and the public in solidarity-based associations". The research is funded by the Directorate for Research, Studies, Evaluation and Statistics (DREES), the National Institute for Social Work – Directorate-General for Social Cohesion (INTS – DGCS) and the National Family Allowances Fund (CNAF), 
 
 
 # Publications 
 
-- Drouilleau, F., Gasquet, G., Rieucau, G. (Eds) (2026, forthcoming) « Travailler et se former pour répondre à la crise climatique : enjeux et perspectives», Céreq Essentiels, OpenEdition Books.
+- Drouilleau, F., Gasquet, G., Rieucau, G. (Eds) (2026, forthcoming) « [ Travailler et se former pour répondre à la crise climatique : enjeux et perspectives] », Céreq Essentiels, OpenEdition Books.
 
 - Rieucau, G. and Larquier (de), G. (2025). « [Labour Market Coordination and Valuation: Convention Theory of Matching and Recruitment](https://conventions.hypotheses.org/26556) ».  in Rainer Diaz-Bone & Guillemette de Larquier (eds.), _Handbook of economics and sociology of conventions_. Cham: Springer, Online first.
 
