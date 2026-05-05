@@ -15,9 +15,7 @@ Email: geraldine.rieucau@u-picardie.fr and g.rieucau@gmail.com
 
 # Bio
 
-Géraldine Rieucau is Professor of Economics at the Université de Picardie Jules Verne (UPVJ), member of CRIISEA (Amiens Center for Research on Industry, Institutions and Economic Systems). She teaches in the Marketing Techniques department of the IUT de l'Oise (Creil). 
-
-She is affiliated with Cnam-CEET and co-editor-in-chief of the journal Travail et Emploi (since February 2018). 
+Géraldine Rieucau is Professor of Economics at the Université de Picardie Jules Verne (UPVJ), member of CRIISEA (Amiens Center for Research on Industry, Institutions and Economic Systems). She teaches in the Marketing Techniques department of the IUT de l'Oise (Creil). She is affiliated with Cnam-CEET. 
 
 Géraldine Rieucau was previously Maîtresse de conférences at Paris 8 University (2001-2020); she worked at the Centre d'études de l'emploi (2012-2015), and was a visiting researcher at Brighton University (2012) and at Pompeu Fabra University, Barcelona (2006-2007).
 
