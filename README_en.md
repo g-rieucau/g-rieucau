@@ -11,8 +11,6 @@ Assistant Director and member of the Centre de recherche sur l'industrie, les in
 
 Researcher affiliated with the Centre d'études de l'emploi et du travail [(Center for employment and labor studies)](https://ceet.cnam.fr).
 
-Co-editor of the journal [Travail et Emploi](https://shs.cairn.info/revue-travail-et-emploi?lang=fr).
-
 Email: geraldine.rieucau@u-picardie.fr and g.rieucau@gmail.com
 
 # Bio
