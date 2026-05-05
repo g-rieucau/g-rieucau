@@ -11,8 +11,6 @@ Directrice adjointe et membre du [Centre de recherche sur l'industrie, les insti
 
 Chercheuse affiliée au [Centre d'études de l'emploi et du travail](https://ceet.cnam.fr)
 
-Co-rédactrice en cheffe de la revue [Travail et Emploi](https://shs.cairn.info/revue-travail-et-emploi?lang=fr)
-
 Email: [geraldine.rieucau@u-picardie.fr](mailto:geraldine.rieucau@u-picardie.fr) et [g.rieucau@gmail.com](mailto:g.rieucau@gmail.com)
 ## Parcours
 
