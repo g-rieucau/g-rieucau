@@ -23,8 +23,8 @@ Depuis 2019, elle consacre ses travaux de recherches aux problématiques de l'em
 
 # Publications 
 
-- Drouilleau, F., Gasquet, G., Rieucau, G. (Eds) (2026, à paraître) « Travailler et se former pour répondre à la crise climatique», Céreq Essentiels, OpenEdition Books.
-
+- Drouilleau, F., Gasquet, G., Rieucau, G. (Eds) (2026) « Travailler et se former pour répondre à la crise climatique», Céreq Essentiels, OpenEdition Books.(https://www.cereq.fr/travailler-et-se-former-pour-repondre-la-crise-climatique)
+  
 - Rieucau, G. and Larquier (de), G. (2025). « [Labour Market Coordination and Valuation: Convention Theory of Matching and Recruitment](https://conventions.hypotheses.org/26556) ».  in Rainer Diaz-Bone & Guillemette de Larquier (eds.), _Handbook of economics and sociology of conventions_. Cham: Springer, Online first.
 
 - Rieucau G., Laussu J., Jolivet A., Brunet C., Lege Ph., Celle S., Guyon T., Longuet S., Tran VH., Larquier de G. (2024), «  [Construire les métiers et les emplois de la transition écologique et sociale](https://ceet.cnam.fr/publications/rapports-de-recherche/construire-les-metiers-et-les-emplois-de-la-transition-ecologique-et-sociale-1506074.kjsp?RH=1507626803290)] », rapport final pour l’ADEME, rapport de Recherches du CEET n°113 
