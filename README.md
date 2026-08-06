@@ -23,7 +23,7 @@ Depuis 2019, elle consacre ses travaux de recherches aux problématiques de l'em
 
 # Publications 
 
-- Rieucau G., Laussu J., Jolivet A., Légé Ph.(à paraître) " Ecological work: Insights from reuse and repair activities in France", _Environmental Science & Policy_.
+- Rieucau G., Laussu J., Jolivet A., Légé Ph. (2026) " [Ecological work: Insights from reuse and repair activities in France](https://www.sciencedirect.com/science/article/pii/S1462901126001504)", _Environmental Science & Policy_. Vol. 183
 
 - Drouilleau, F., Gasquet, C., Rieucau, G. (Eds) (2026) « [Travailler et se former pour répondre à la crise climatique»](https://www.cereq.fr/travailler-et-se-former-pour-repondre-la-crise-climatique)». Céreq Essentiels, OpenEdition Books
   
