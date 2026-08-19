@@ -2,7 +2,7 @@
 
 # Géraldine Rieucau
 
-![](GR-decembre-25-bis.jpg)
+![](Géraldine-Août-2026-400.JPG)
 
 
 Full Professor of Economics at the University of Picardie Jules Verne. Teacher at the [IUT de l'Oise (Creil)](https://iut-oise.u-picardie.fr/).
